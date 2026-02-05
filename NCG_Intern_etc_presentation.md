@@ -6,6 +6,8 @@
 
 [AskReddit: Straight A students of reddit, what is your studying method?](https://www.reddit.com/r/AskReddit/comments/9lskg2/serious_straight_a_students_of_reddit_what_is/)
 
+[Jim Williams: Be it ever so high-tech, there’s no place like home](https://www.edn.com/be-it-ever-so-high-tech-theres-no-place-like-home/)
+
 [Bueller?](https://www.youtube.com/watch?v=KS6f1MKpLGM)
 
 [How Not to Ruin Your Life (Success Is All in a Day's Work)](https://web.archive.org/web/20070113012440/http://finance.yahoo.com/columnist/article/yourlife/18699?p=1)
